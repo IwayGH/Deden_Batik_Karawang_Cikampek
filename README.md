@@ -10,4 +10,4 @@ Informasi yang tersedia meliputi pilihan unit, spesifikasi rumah, harga, promo, 
 
 ---
 
-© 2026 Deden · Sales Marketing Perumahan Batik Karawang | powered by Iway
+© 2026 Deden · Sales Marketing Perumahan Batik Karawang - Cikampek | powered by Iway
